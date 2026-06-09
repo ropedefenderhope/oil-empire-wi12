@@ -1,4 +1,4 @@
-
+oil empire Script stealth offers the most advanced oil empire Script, with auto-collect and no clip. Perfect for dominating any match.
 
 
 
